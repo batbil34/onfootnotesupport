@@ -12,7 +12,7 @@ For support requests, bug reports, account questions, App Store / Google Play re
 
 Destek talepleri, hata bildirimleri, hesap soruları, App Store / Google Play inceleme talepleri veya öneriler için:
 
-[com.batu.onfootnote@gmail.com](mailto:com.batu.onfootnote@gmail.com)
+[yagli-kraken6i@icloud.com](mailto:yagli-kraken6i@icloud.com)
 
 ---
 
